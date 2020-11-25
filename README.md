@@ -1,4 +1,4 @@
-### Hi there, I'm MAK 👋
+### Hej there, I'm MAK 👋
 ## An Enterprise & Solution Architect, Technology Enthusiast, & your Digital Transformation success partner
 
 
